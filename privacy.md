@@ -1,0 +1,1 @@
+Hold Close does not collect, store or share any personal dara.
